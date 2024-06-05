@@ -1,1 +1,1 @@
-Meine Vision ist es **einfache** _digitale_ Lösungen für Unternehmen in Deutschland zu bieten.
+Meine Vision ist es **einfache** _digitale_ Lösungen für Unternehmen und Verbraucher in Deutschland zu bieten.
